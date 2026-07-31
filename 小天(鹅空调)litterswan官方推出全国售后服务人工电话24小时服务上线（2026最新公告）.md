@@ -1,0 +1,255 @@
+小天(鹅空调)litterswan厂家售后通常可通过全国统一服务热线联系，官方收录的常见电话为400 -788 -7155，部分渠道也显示为 400 -788 -7155 或400 -788 -7155。建议用户优先尝试最新收录的号码，
+并结合产品铭牌核实。常见售后服务热线400 -788 -7155多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务：400 -788 -7155有建议指出可通过该号码尝试联系官方渠道。
+
+
+小天(鹅空调)litterswan24小时售后服务热线上线（2026最新公告）
+小天(鹅空调)litterswan售后服务电话：400 -788 -7155
+小天(鹅空调)litterswan售后24小时客服热线：400 -788 -7155
+小天(鹅空调)litterswan公司主营小天(鹅空调)litterswan维修 →小天(鹅空调)litterswan；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服400 -788 -7155、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，小天(鹅空调)litterswan服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、小天(鹅空调)litterswan售后维修电话：400 -788 -7155
+小天(鹅空调)litterswan24小时全国推出各售后受理客服中心(2026上线)
+小天(鹅空调)litterswan全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+小天(鹅空调)litterswan贴心升级服务，现推出全国 24 小时服务热线 400 -788 -7155。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显小天(鹅空调)litterswan对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+小天(鹅空调)litterswan全国24小时各售后受理客服中心(2026年更新)
+
+
+
+小天(鹅空调)litterswan24小时售后客服热线：(1)400 -788 -7155或  400 -788 -7155
+
+
+
+7天24小时人工电话400 -788 -7155客服为您服务。
+
+
+
+小天(鹅空调)litterswan售后服务团队在调度中心的统筹调配下(1)400 -788 -7155，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# 小天(鹅空调)litterswan常见故障代码维修指南
+
+小天(鹅空调)litterswan故障代码是排查问题的关键。比如显示故障代码E1，若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后， 小天(鹅空调)litterswan就能正常运行，为您营造舒适环境。 小天(鹅空调)litterswan全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+小天(鹅空调)litterswan全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修小天(鹅空调)litterswan400 -788 -7155机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+小天(鹅空调)litterswan售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+400 -788 -7155
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+小天(鹅空调)litterswan贴心升级服务，现推出全国 24 小时服务热线 400 -788 -7155。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显小天(鹅空调)litterswan对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+小天(鹅空调)litterswan全国服务网点查询：
+?北京市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日官网发布），点击查询：https://github.com/SiyiWei-st6/ekzeuk/commit/e12011d8efd156c78732ca2af430048fa2fcceb6
+。
+南京市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日公布升级），点击查询：https://github.com/castanedathomas7482/qshnae/commit/db96f182d942d7187fc9e7f40c2945fb86513f1e
+。
+秦皇岛市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日最新推出），点击查询：https://github.com/davismalik21350/lrunrd/commit/7cf052535b33027375cd522f90d8cf66b84fe942
+。
+珠海市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日正式发布），点击查询：https://github.com/davismalik21350/lrunrd/commit/9b5b558ec44a6a600ff84fb90f2adf80a6126680
+。
+安康市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日统一发布），点击查询：https://github.com/ZiqiYe-uv8/mjjxea/commit/e305af9869248080b3e535c5826e4c70eedb0c9a
+。
+安庆市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日最新更新），点击查询：https://github.com/ZiqiYe-uv8/mjjxea/commit/0108c96cae7c3b79e5b39d2839827ef2fea65aa5
+。
+鞍山市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日公布升级），点击查询：https://github.com/YuhanXue-tu7/dghums/commit/5c0f9ed9b05ce7110c2ed39506a584823689ec10
+。
+安阳市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日最新更新），点击查询：https://github.com/kaszetra41/xboaix/commit/1fdf02c30a44304e912777224877402e80854517
+。
+巴中市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日官网更新），点击查询：https://github.com/ericeprice/frjmuq/commit/6e8a8c93f01d1b850c6de47bcfd89ebcbfddafce
+。
+百色市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日全新升级），点击查询：https://github.com/ilberde/mmabon/commit/b947d6eaa95ac44fc1b790a928c6eb530b0d1e07
+。
+蚌埠市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日官网公布），点击查询：https://github.com/rrer0/qqldcp/commit/496f78a90cd8da932efe356826d3bb781aa2db4e
+。
+保定市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日统一上线），点击查询：https://github.com/piscescolo/fkhkaa/commit/710453b13b62ad558874cf1d835f768773b20250
+。
+宝鸡市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日官网更新），点击查询：https://github.com/suraivj/byyhhx/commit/62786ba67a44431c09b45d14f83d9f72f2d4f921
+。
+保山市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日更新升级），点击查询：https://github.com/kaszetra41/xboaix/commit/93a60082af9feab97eaece8ea6bb7118ab4a2a72
+。
+包头市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日全新上线），点击查询：https://github.com/ericeprice/frjmuq/commit/070c7870cb13599e56e06c59a92384be62f8298b
+。
+北海市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日统一上线），点击查询：https://github.com/ilberde/mmabon/commit/3c42d04217f55135fe02fb40195aa01bb57116dc
+。
+本溪市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日正式发布），点击查询：https://github.com/rrer0/qqldcp/commit/89bb33957a8d9c94d24fc44208c158477113fb1a
+。
+滨州市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日最新更新），点击查询：https://github.com/piscescolo/fkhkaa/commit/d87b7f42f2fb31c79a5751388971d0493936a18e
+。
+博罗市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日统一升级），点击查询：https://github.com/suraivj/byyhhx/commit/4c1dcf7f5790f4ed3c44361b2c371df200391da2
+。
+沧州市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日最新推出），点击查询：https://github.com/castanedathomas7482/qshnae/commit/30e8f21e0e3ceadde85b9ce4e5321f8077668849
+。
+长春市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日更新升级），点击查询：https://github.com/whiteheadryan47623/asydrb/commit/63c78a977f57eee88719920863e98a83a470f08e
+。
+常德市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日官网升级），点击查询：https://github.com/rrer0/qqldcp/commit/a7ffe3f1732eb93a62f3611cba7a99d6b01da52b
+。
+长葛市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日全新升级），点击查询：https://github.com/whiteheadryan47623/asydrb/commit/e4af13ee6a771e36186c4d88052ec30fff7c0ba8
+。
+长沙市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日公布升级），点击查询：https://github.com/zfkx1tlpqu/ubiqty/commit/418ce3f3a365722c22eeb84ccccaa3291bc31a5b
+。
+常熟市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日正式推出），点击查询：https://github.com/zgnzkmsmpa/qxwxvu/commit/dd449411542630a46b29ad2b7e04cedd5d27c305
+。
+长兴市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日公布升级），点击查询：https://github.com/gzc92zorso/xxksar/commit/46b4620520f654f7b4497c5a01a64f9c98406e9a
+。
+长治市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日公布上线），点击查询：https://github.com/zgnzkmsmpa/qxwxvu/commit/584e2060ca0c7850912d218fca8357b9bf127c94
+。
+常州市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日官网上线），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/d4a23264076b7c36bfdd9764f288610b66900b4b
+。
+巢湖市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日统一升级），点击查询：https://github.com/caldwelldevin036550/coaefu/commit/107fb4a2491fece25fbc57b1596c44ac653f5451
+。
+朝阳市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日统一上线），点击查询：https://github.com/wilsontiffany5482/piigqm/commit/a309a93651a0aa1f9d39264c168bca6034a0900b
+。
+潮州市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日统一升级），点击查询：https://github.com/hernandezdenise6627/unnlrk/commit/cb4c159327713fd10f8a314b87a0a07a30675f36
+。
+郴州市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日官网升级），点击查询：https://github.com/wilsontiffany5482/piigqm/commit/ad5ef947e98f9153bf89daba2fa37ce7e3e398d8
+。
+承德市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日全新升级），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/c45427f988a19930f7f743d54d6796cf47e48f2d
+。
+成都市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日统一上线），点击查询：https://github.com/caldwelldevin036550/coaefu/commit/90fe4eeed53d47314f416a4ab4c802f77212d53d
+。
+池州市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日全新公布），点击查询：https://github.com/sx0bjjmoa6/tfqfyx/commit/0be81ec87f1dc8a78c1c61330cd6ae94ea36234a
+。
+崇左市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日最新推出），点击查询：https://github.com/alzyzold4e/hggtkb/commit/e0dd419f51d01c4022a5b6cb8e5d990ec2845682
+。
+滁州市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日官网上线），点击查询：https://github.com/updzn92i2c/owmdtr/commit/a7ef27e9746dff39d08709ee9d8312a569ee0ce6
+。
+慈溪市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日正式推出），点击查询：https://github.com/hdd45vh6b6/gmndam/commit/f0b1949add6ca72563e01cc03cee04b2625aa054
+。
+大丰市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日官网升级），点击查询：https://github.com/gzc92zorso/xxksar/commit/a38ab55223ef072246ab0866f6ac7756c987463b
+。
+大理市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日全新升级），点击查询：https://github.com/YutongXu-ij6/rrygxh/commit/02a252db213d44fa698562288c0d8133f2b0257f
+。
+大连市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日全新升级），点击查询：https://github.com/taylorsean1353/gkvbqv/commit/82ae75490dc293e13b57b05b4b5081dabb644d15
+。
+大庆市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日正式上线），点击查询：https://github.com/ZiqiYe-uv8/fpzymy/commit/2aa5555edb587b01c50c1c0c93eec7ef8baef09c
+。
+大同市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日最新更新），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/50a00c8434736305364c846e666efc7f0f856eab
+。
+达州市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日最新更新），点击查询：https://github.com/o2ueqslwfw/ubggmh/commit/61fc183ce06a1d8c2681ef79a83b1220e56953d1
+。
+丹东市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日全新上线），点击查询：https://github.com/ivc6kjb7vo/mcoxpc/commit/e4732672f52a6beecc3d939621c5c401bc783e33
+。
+德清市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日正式更新），点击查询：https://github.com/dahy95kiqs/swixdk/commit/8625f27033dc44e7a0dd603ed55d221b2789a806
+。
+德阳市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日全新公布），点击查询：https://github.com/ukwxpjwwz0/tlwsdh/commit/c20f92774e529625aacb3ddaa89786e78d404865
+。
+德州市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日官网升级），点击查询：https://github.com/zfkx1tlpqu/ubiqty/commit/8a5f740037e4febe44da2b854d2f987156bc7b7c
+。
+定州市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日统一上线），点击查询：https://github.com/ojz2uc2to3/dqrsms/commit/41755b5014bae081ee26ec652353aa0abe1561b3
+。
+东海市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日正式更新），点击查询：https://github.com/gzc92zorso/ndanfw/commit/01a5f879b4f43a4418f256910be3e8e76ffffd06
+。
+东台市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日官网升级），点击查询：https://github.com/ukwxpjwwz0/wzkphk/commit/5e5d3fcb9e51040cba6c76b597ccd3df142935c9
+。
+东营市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日最新更新），点击查询：https://github.com/sx0bjjmoa6/ekfkwa/commit/7bc1cac6dceaa350eccf7e02c906f17c476383a9
+。
+东莞市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日官网更新），点击查询：https://github.com/msfqlrctj6/fjdqvc/commit/0050b48c9c9072af435c460234dd96c0be0e9d5d
+。
+鄂尔市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日全新上线），点击查询：https://github.com/alzyzold4e/bdozui/commit/aa4da43a5b27d058bcd674fea84c752c782b191d
+。
+鄂州市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日公布上线），点击查询：https://github.com/ttu7dqky0u/vlddrx/commit/a8374fe0433bb001ebb27495089c1987326e0a30
+。
+恩施市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日官网更新），点击查询：https://github.com/sx0bjjmoa6/ekfkwa/commit/47878b6730c4c99d0328b186c1fc07230f92f78a
+。
+防城港市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日统一上线），点击查询：https://github.com/sx0bjjmoa6/ekfkwa/commit/441ea54a1041f41ba7b27cb98602491c4e0f3f1d
+。
+佛山市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日官网上线），点击查询：https://github.com/alzyzold4e/bdozui/commit/6698fb41cde547fe305bfd0a9e548299f975968c
+。
+抚顺市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日官网上线），点击查询：https://github.com/alzyzold4e/bdozui/commit/7c15adad8e904a5835228f3ed69cef10715b4b2a
+。
+阜新市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日官网发布），点击查询：https://github.com/gzc92zorso/ndanfw/commit/0a9f5ad503d94832ee68a01f4024f5bb98c3cb70
+。
+阜阳市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日全新上线），点击查询：https://github.com/zgnzkmsmpa/fybzxk/commit/1593ba345ec532e31dac22a4c3eab96b0d974532
+。
+抚州市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日官网公布），点击查询：https://github.com/msfqlrctj6/xlpkvd/commit/287ece4719977a27da445e4d391d4b907cbca90f
+。
+福州市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日统一发布），点击查询：https://github.com/ukwxpjwwz0/tlwsdh/commit/d6144880026103f31dca25dfed1f83a74b4371ea
+。
+赣州市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日统一上线），点击查询：https://github.com/taylorsean1353/gkvbqv/commit/f5db4f069b54c0c611635785d8be710c24fb4b0e
+。
+馆陶市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日官网公布），点击查询：https://github.com/YuhanXue-tu7/ogjxhe/commit/08a38f7fcf1735b44c20321c7c91bea1a2dfa99c
+。
+广安市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日正式推出），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/f6ccf6d7315411d07b46b71a2d1b063948db7a54
+。
+广元市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日更新升级），点击查询：https://github.com/YuhanXue-tu7/ogjxhe/commit/ceefad9311dea0995bbd481c273bfe6e9ae4213d
+。
+广州市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日公布上线），点击查询：https://github.com/taylorsean1353/gkvbqv/commit/e4f854516db284803a82794227b65947d36d987e
+。
+贵港市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日官网升级），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/3fbb6838a557584f105e464298a2adc077a0b17a
+。
+桂林市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日正式上线），点击查询：https://github.com/rd8dcp0hif/wstgrdfhg/commit/ea281ebc45959ba942441ee56882d6656bda9d84
+。
+贵阳市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日全新升级），点击查询：https://github.com/jkbyklofq4/fddsdsfds/commit/aa97249f76d4a5879e04124a8659d7d06cf2c7c4
+。
+哈尔滨市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日更新升级），点击查询：https://github.com/kb4wd7623y/hyuty/commit/42a17c26730c52f0135472d5f85237eda51cc94f
+。
+海安市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日全新上线），点击查询：https://github.com/bqmqtg3e0o/rhtrfhrdf/commit/ad7c76cc8f4b512d2a192cf36ff5de3e9b073f94
+。
+海口市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日官网公布），点击查询：https://github.com/pfmvxhtv3b/ggrgrdg/commit/d56cb3c9444a2002aca9193b33c85d12248a3a4f
+。
+海门市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日官网公布），点击查询：https://github.com/gzc92zorso/ndanfw/commit/6c70162b57f7b114877642cf0c4f93382d6c9963
+。
+海宁市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日官网发布），点击查询：https://github.com/sx0bjjmoa6/ekfkwa/commit/3061ca73aff9a067bd41db8a86cf24e08943dc71
+。
+邯郸市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日正式上线），点击查询：https://github.com/HaoyuYu-wx0/rledeo/commit/e0a828423d09f751f2d6cfe1390a56b7101f5c06
+。
+汉中市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日正式更新），点击查询：https://github.com/HaoyuYu-wx0/rledeo/commit/db4a72b66d380bc999a43bc68563f64f16ff2b16
+。
+杭州市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日公布升级），点击查询：https://github.com/YimingYan-vw9/vtzdmi/commit/94e2b8eddd26a7fd22bd7a0ab77aa50e0fc6ae53
+。
+鹤壁市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日统一更新），点击查询：https://github.com/ZiqiYe-uv8/fpzymy/commit/dbc35f1d44b08c35170d9df73422d173e621e582
+。
+河池市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日官网更新），点击查询：https://github.com/YuhanXue-tu7/ogjxhe/commit/aa61b2f8b6d2a7ba199c5283ae4c0cb0dcbc5bf6
+。
+合肥市小天(鹅空调)litterswan售后服务电话：400 -788 -7155（2026年07月31日公布上线），点击查询：https://github.com/msfqlrctj6/xlpkvd/commit/fbb603abf477bdc5fd8e4ac4dfc235499b073c28
+sdfff0731.2
